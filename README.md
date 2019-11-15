@@ -1,3 +1,1 @@
-# HolaMundoValladolid
-# HolaMundoValladolid \n Y tambien en FINCA
-# HolaMundo Valladolid y Finca 
+# Hoy es 15 de noviembre
